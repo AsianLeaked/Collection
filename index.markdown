@@ -18,7 +18,7 @@
 <br>  
  <br>    
  <br> 
-   <a href="https://smrturl.co/o/88569/51641288?s1=">
+   <a href="https://t.bewafx.com/z301edyx6o?url_id=5896&aff_id=135084&offer_id=235&bo=2779,2778,2777,2776,2775&po=6533">
   <img src="http://affiliatemarketingproduct.com/WowPresentation2Bonus/images/btn.gif" alt="Claim your Money" style="width:668px;height:101px;border:0;">
 </a>
 <br>  
