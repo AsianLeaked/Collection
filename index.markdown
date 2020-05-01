@@ -5,14 +5,12 @@
   </head>
   <body>
   <div align="center">
- 
-  <br>  
- <br>    
- <br>  
+ <a href="https://t.bewafx.com/m13hq2giio?url_id=5896&aff_id=135084&offer_id=235&bo=2779,2778,2777,2776,2775&file_id=170378&po=6533" target="_blank"><img src="https://www.imglnkd.com/235/000502C_GHRD_18_ALL_EN_83_L.jpg" width="950" height="250" border="0" /></a>
+  <br>   
 <br>  
  <br>    
  <br> 
-   <a href="https://smrturl.co/o/88569/51641288?s1=">
+   <a href="https://t.bewafx.com/o6e3v0s4jk?url_id=5896&aff_id=135084&offer_id=235&bo=2779,2778,2777,2776,2775&file_id=111174&po=6533">
   <img src="http://affiliatemarketingproduct.com/WowPresentation2Bonus/images/btn.gif" alt="Claim your Money" style="width:668px;height:101px;border:0;">
 </a>
 <br>  
@@ -31,34 +29,11 @@
 )();
 </script>
  <br>    
- <br> 
-   <br>  
- <br>    
- <br> 
   
+  <a href="https://t.bewafx.com/o6e3v0s4jk?url_id=5896&aff_id=135084&offer_id=235&bo=2779,2778,2777,2776,2775&file_id=111174&po=6533" target="_blank"><img src="https://www.imglnkd.com/235/000494A_PSRV_18_ALL_EN_7878_L.jpg" width="990" height="247" border="0" /></a>
  
   
- <br>    
- <br> 
-   <br>  
- <br>    
- <br>    
-     <br>    
- <br> 
-   <br>  
- <br>    
- <br>    
-     <br>    
- <br> 
-   <br>  
- <br>    
- <br>    
-     <br>    
- <br> 
-   <br>  
- <br>    
- <br>    
-    
+
    
    
 
