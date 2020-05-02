@@ -1,7 +1,12 @@
 <html>
   <head>
+     <style>
+body {
+  background-image: url(https://lh3.googleusercontent.com/proxy/DWmZuuReUof6EX7n5nOMtpXOWMvjqoSTS84E4ead8M3EGIweE1XZRBUSgd13D9Cb_LokjwOJcEUfsjA8kofQNC4G9OnJEqafWuVZzDJQFD9QFk8uYzFRpQqnNqA);
+}
+</style>
     <meta charset="UTF-8">
-    <title> Claim your Free Money</title>
+    <title> Free Cams </title>
   </head>
   <body>
   <div align="center">
@@ -11,7 +16,7 @@
  <br>    
  <br> 
    <a href="https://t.bewafx.com/o6e3v0s4jk?url_id=5896&aff_id=135084&offer_id=235&bo=2779,2778,2777,2776,2775&file_id=111174&po=6533">
-  <img src="http://affiliatemarketingproduct.com/WowPresentation2Bonus/images/btn.gif" alt="Claim your Money" style="width:668px;height:101px;border:0;">
+  <img src="https://clipartmag.com/images/click-here-button-png-24.png" alt="Enter Now!" style="width:668px;height:101px;border:0;">
 </a>
 <br>  
  <br>    
