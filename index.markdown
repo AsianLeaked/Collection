@@ -15,8 +15,8 @@ body {
 <br>  
  <br>    
  <br> 
-   <a href="https://t.bdwafx.com/gqk6frh6gw?url_id=0&aff_id=135084&offer_id=2994&bo=2779,2778,2777,2776,2775&po=6533" alt="Enter Now!" style="width:668px;height:101px;border:0;">
-</a>
+   <a href="https://t.bdwafx.com/gqk6frh6gw?url_id=0&aff_id=135084&offer_id=2994&bo=2779,2778,2777,2776,2775&po=6533" target="_blank"><img src="https://ratracesurvival.co.uk/wp-content/uploads/2018/09/EnterNow_passion.gif" width="400" height="100" border="0" />
+ </a>
 <br>  
  <br>    
  <br> 
