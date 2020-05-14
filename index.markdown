@@ -11,9 +11,12 @@
 <br>  
  <br>    
  <br> 
-  <h1 style="color:#ebcf34;">Thank you for Visiting Us!</h1>
-   <h1 style="color:#ebcf34;">To Join and Watch Us</h1>
-    <h1 style="color:#ebcf34;">Click ENTER NOW and Sign up FREE!</h1>
+  <h1 style="color:#ebcf34;">Thank you for Visiting Us!
+<br>
+    To Join and Watch Us
+<br>
+    <br>  
+    Click ENTER NOW and Sign up FREE!</h1>
     <a href="https://t.bdwafx.com/gqk6frh6gw?url_id=0&aff_id=135084&offer_id=2994&bo=2779,2778,2777,2776,2775&po=6533" target="_blank"><img src="https://ratracesurvival.co.uk/wp-content/uploads/2018/09/EnterNow_passion.gif" width="400" height="100" border="0" />
  </a>
 <br>  
@@ -35,6 +38,7 @@
   
   <a href="https://t.bewafx.com/o6e3v0s4jk?url_id=5896&aff_id=135084&offer_id=235&bo=2779,2778,2777,2776,2775&file_id=111174&po=6533" target="_blank"><img src="https://www.imglnkd.com/235/000494A_PSRV_18_ALL_EN_7878_L.jpg" width="990" height="247" border="0" /></a>
    <script async src='//rxtgbihqbs99.com/7106e791543eb5aa6f4e77dc68f02008/invoke.js'></script>
-  <script type='text/javascript' src='//rxtgbihqbs99.com/88/7c/ed/887ced0a2df7056594c747428cb566ec.js'></script>
+<script type='text/javascript' src='//rxtgbihqbs99.com/88/7c/ed/887ced0a2df7056594c747428cb566ec.js'></script>
+   
     </body>
 </html>
