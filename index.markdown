@@ -15,8 +15,7 @@ body {
 <br>  
  <br>    
  <br> 
-   <a href="https://t.bewafx.com/o6e3v0s4jk?url_id=5896&aff_id=135084&offer_id=235&bo=2779,2778,2777,2776,2775&file_id=111174&po=6533">
-  <img src="https://clipartmag.com/images/click-here-button-png-24.png" alt="Enter Now!" style="width:668px;height:101px;border:0;">
+   <a href="https://t.bdwafx.com/gqk6frh6gw?url_id=0&aff_id=135084&offer_id=2994&bo=2779,2778,2777,2776,2775&po=6533" alt="Enter Now!" style="width:668px;height:101px;border:0;">
 </a>
 <br>  
  <br>    
